@@ -1,2 +1,1 @@
-Yo I have like
-Zero clue what I'm doing
+Yo I have like zero clue what I'm doing
